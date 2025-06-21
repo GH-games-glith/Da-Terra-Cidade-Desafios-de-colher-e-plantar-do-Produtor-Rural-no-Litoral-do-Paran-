@@ -48,6 +48,10 @@ CONCERNEDAPE. Stardew Valley [Jogo eletrônico]. Califórnia, EUA: ConcernedApe,
 EMBRAPA – Empresa Brasileira de Pesquisa Agropecuária.
 Pragas da mandioca: Manejo e controle da lagarta mandarová (Erinnyis ello). Cruz das Almas, BA: Embrapa Mandioca e Fruticultura, atualizado em 2025. Disponível em: https://www.embrapa.br/mandioca-e-fruticultura. Acesso em 15/06/2025
 
+EMOJITERRA. Sol. Chuva. Lagarta. Milho. Nuvem. Disponível em: https://emojiterra.com/pt/. Acesso em: 21 jun. 2025.
+
+FREESOUND_COMMUNITY. Efeito sonoro. [Recurso sonoro]. Pixabay, 2025. Disponível em: https://pixabay.com/pt/users/freesound_community-46691455/. Acesso em: 29/maio/2025.
+
 IDR-Paraná – Instituto de Desenvolvimento Rural do Paraná.
 Boletim Agrometeorológico de agosto de 2024. Déficit hídrico impacta culturas no litoral do Paraná. Curitiba, PR: IDR-Paraná/Simepar, 2024. Disponível em: https://www.idrparana.pr.gov.br. Acesso em 10/06/2025
 
