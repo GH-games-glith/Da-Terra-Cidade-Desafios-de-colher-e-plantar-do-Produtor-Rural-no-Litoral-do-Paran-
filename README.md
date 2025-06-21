@@ -52,5 +52,6 @@ IDR-Paraná – Instituto de Desenvolvimento Rural do Paraná.
 Boletim Agrometeorológico de agosto de 2024. Déficit hídrico impacta culturas no litoral do Paraná. Curitiba, PR: IDR-Paraná/Simepar, 2024. Disponível em: https://www.idrparana.pr.gov.br. Acesso em 10/06/2025
 
 ZYNGA. FarmVille [Jogo eletrônico]. São Francisco, EUA: Zynga, 2009. Disponível em: https://www.zynga.com/games/farmville. Acesso em: 9 jun. 2025.
+
 Projeto desenvolvido para
 #agrinho #2025 #litoraldoParaná
